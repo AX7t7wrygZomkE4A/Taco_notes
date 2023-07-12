@@ -15,7 +15,7 @@
 
 塔可的TG仓库
 
-https://t.me/+k7QHJz6RQjRlODU1
+https://t.me/Party_Taco_Shop
 
 花之领域QQ群
 
